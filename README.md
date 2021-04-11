@@ -1,1 +1,0 @@
-# kanyou.github.io
